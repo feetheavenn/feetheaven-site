@@ -21,3 +21,8 @@
 ---
 
 ### 🌍 Keywords / Ключевые слова (SEO Boost):
+foot fetish telegram, ступни телеграм, barefoot girls, turkish toes, пятки, feet pics leak, foot domination, dirty soles, toes pics, ногти, heels HD, AI girl feet, soles worship telegram, aesthetic feet channel, фетиш ноги, стопы, телеграм контент, ноги фото
+---
+
+> **+18 ONLY / Только для взрослых 18+**  
+> All content is aesthetic, fetish-themed and meant for adult viewers.
