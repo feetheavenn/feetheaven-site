@@ -2,7 +2,7 @@
 
 **Feet Heaven** is a global Telegram channel for **foot fetish** lovers — updated daily with premium content.
 
-**Feet, toes, soles, heels, wrinkled feet, barefoot domination, Turkish & Russian girls, AI-generated toes.**
+**Feet, toes, soles, heels, wrinkled feet, barefoot domination,  Russian girls, AI-generated toes.**
 
 ## 📥 Telegram Link:
 👉 https://t.me/feetheavenn
